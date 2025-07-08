@@ -10,4 +10,4 @@
 
 本站提供丰富的在线视频资源，涵盖多个领域，您可以在这里找到最新的电影、电视剧以及其他娱乐内容。支持无广告播放，确保流畅观看体验，让您随时随地享受纯净的影视乐趣。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan9 ）</span>
